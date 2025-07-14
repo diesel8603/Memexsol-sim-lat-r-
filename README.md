@@ -1,1 +1,0 @@
-# Memexsol-sim-lat-r-
